@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **singhaniaarj@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1CL1oCwYFB69rpJHq_6_JuH-j7Cui4tt7/view?usp=sharing](https://drive.google.com/file/d/1CL1oCwYFB69rpJHq_6_JuH-j7Cui4tt7/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1CL1oCwYFB69rpJHq_6_JuH-j7Cui4tt7/view?usp=sharing](https://drive.google.com/file/d/1LvKaDlLop0Oa97u0xHQMA9CeA7i732M2/view?usp=drivesdk)
 
 - ⚡ Fun fact **One of my favorite things to do is Coding.**
 
